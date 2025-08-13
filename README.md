@@ -1,1 +1,1 @@
-# replica-ryushin
+# replica-ryushin + original-ryushin = god of genesis
